@@ -1,3 +1,3 @@
 # TolgaUwU
 
-## ![Click!](https://lovemesenpaiii.github.io/TolgaUwU/)
+## [Click!](https://lovemesenpaiii.github.io/TolgaUwU/)
